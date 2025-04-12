@@ -1,2 +1,2 @@
-# hard.online
-Hard Online | Лучший бонусный проек
+# hard.roleplay
+Hard RolePlay | Лучший бонусный проект
